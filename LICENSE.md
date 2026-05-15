@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with ultimate Polymarket Module | scalping-strategies + decentralized-trading, the #1 module. Includes scalping-strategies and
 
 
 
